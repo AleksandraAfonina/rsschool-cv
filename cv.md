@@ -1,7 +1,5 @@
 # __Aleksandra Afonina__
 
-![](file:///C:/Users/a-servis/Desktop/rs_school/rsschool-cv/123.JPG)
-
 ## __Contacts__
 
 - __Phone:__  +375296658689
